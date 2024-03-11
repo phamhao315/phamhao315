@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @phamhao315
+- 👀 I’m interested in meat
+- 🌱 I’m currently learning english
+- 💞️ I’m looking to collaborate on NFT
+- 📫 I am from Viet Nam
